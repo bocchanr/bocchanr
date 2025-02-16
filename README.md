@@ -1,2 +1,2 @@
-hai ^_^ PLZ iwc since i may be awkward if i don't know you that much 
+hai /꒰• △ •ྀི꒱\ PLZ iwc since i may be awkward
 ![:3](https://i.imgur.com/zQtBiot.jpeg)
